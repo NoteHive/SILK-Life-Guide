@@ -1,4 +1,4 @@
-# SILK-Life-Guide
+# SILK Life Guide
 “The greatest wealth is health.” – Virgil. We at SILK Life will guide you to have a healthy lifestyle. SILK Life consists of so many areas such as health promotion, behavioral health, improvement in lifestyle, and many others. It plays an integral role in everyone’s life. SILK Lifestyle includes the living pattern, behavioral attitude, eating habits, health-related activities like yoga, going on walk, sports and many other things.
 ### What is S.I.L.K.?
 * **S - Strength**: the body and the mind is a motivation to move forward and do better in life. 
